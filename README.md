@@ -6,5 +6,5 @@
 <br><br>
 🤓 I'm currently learning everything I can get my hands on 🤣
 <br><br>
-🖥 Enjoy looking through the progression of different projects I built that led to the culmination of my Final Project - Full Sail.
+🖥 Enjoy looking through the progression of different projects I built that led to the culmination of Full Sail.
 
